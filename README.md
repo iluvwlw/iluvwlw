@@ -5,6 +5,8 @@ For starters, this is a *Pony Town* profile.. OKAY? I'M STILL STUDYING, MICHAEL.
 
 ## so uh.. ANYWAY
 
+-I speak both English and Spanish, so yes.. I'm in both Safe and Spanish/Portuguese Servers :p
+
 -I'm a girlll but i genuinely don't care if you want to use any other pronouns, like- i don't care at all.. Like, my pronouns are there, if you want to use them, cool, if you don't.. also cool lol
 
 -If you want to get to know me better and you see me around, don't be shy! Just talk to me, I'm a nice gal :) (Though, don't try to boop me a thousand times just to get my attention if.. I'm obviously AFK, alright? I've seen y'all. *I'm not going to POINT FINGERS at ANYONE.*
