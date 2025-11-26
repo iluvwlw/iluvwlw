@@ -21,7 +21,7 @@ and so uhhh,, eehhhh- iiiii mmmm
 
 `LOOK AT THE KEYS BUDDY JINGLE JINGLE THIS IS A WIP, GOT IT? DINGLE DANGLE DINGLE DANGLE STOP LOOKING AND JUDGING`
 
-im shy and really awkward stop it
+stop it papa 
 
 <!--
 **iluvwlw/iluvwlw** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
