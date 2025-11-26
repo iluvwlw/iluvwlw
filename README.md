@@ -23,14 +23,14 @@ and so uhhh,, eehhhh- iiiii mmmm
 
 stop it papa 
 
+uh,,
+,
+,,,
+,
 
+also i love laufey
 
-uh
-
-
-
-
-also i love laufey so much heres a funny pic
+u do too? omg thats awesome can we be frens
 
 ![1e872e4ee25194295a54df09be194112](https://github.com/user-attachments/assets/41bdf1e7-3698-4ac1-822c-4f833f5e6e53)
 
