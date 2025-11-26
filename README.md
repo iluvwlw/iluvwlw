@@ -15,7 +15,7 @@ For starters, this is a *Pony Town* profile.. OKAY? I'M STILL STUDYING, MICHAEL.
 
 So, I think that's probably it.
 
-Other info about me that are probably irrelevant is that I'm a girl kisser and probably demiromantic :) (I'm still discovering myself, ok?????)
+Other info about me that are probably irrelevant are that I'm a girl kisser and probably demiromantic :) (I'm still discovering myself, ok?????)
 
 and so uhhh,, eehhhh- iiiii mmmm
 
