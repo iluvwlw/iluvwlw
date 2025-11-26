@@ -32,8 +32,10 @@ also i love laufey
 
 u do too? omg thats awesome can we be frens
 
-![1e872e4ee25194295a54df09be194112](https://github.com/user-attachments/assets/41bdf1e7-3698-4ac1-822c-4f833f5e6e53)
 
+
+
+![4e7c25220d42ac1bfc87cae7c3327937](https://github.com/user-attachments/assets/8ecd46a4-641a-466e-a23d-9dbb5493cd30)
 
 
 
