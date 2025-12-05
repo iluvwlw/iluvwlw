@@ -1,7 +1,7 @@
 ## WSG YALL
 Trying to get used to this thing cuz I genuinely don't know how to use it, but I'm definitely gonna drop some stuff about me and eventually customize it properly. ***(SO YES, This is a WIP)***
 
-For starters, this is a *Pony Town* profile.. OKAY? I'M STILL STUDYING, MICHAEL. I DON'T KNOW PROGRAMMING.
+For starters, this is a *Pony Town* profile.. OKAY? I'M STILL STUDYING, ~MICHAEL~. I DON'T KNOW PROGRAMMING.
 
 ## so uh.. ANYWAY
 
@@ -21,7 +21,7 @@ and so uhhh,, eehhhh- iiiii mmmm
 
 `LOOK AT THE KEYS BUDDY JINGLE JINGLE THIS IS A WIP, GOT IT? DINGLE DANGLE DINGLE DANGLE STOP LOOKING AND JUDGING`
 
-stop it papa 
+stop it papa im lowk so goddamn awkward, so freaking sorry in advance 
 
 uh,,
 ,
