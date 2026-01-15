@@ -1,6 +1,8 @@
-![e828af9dbb4ff3f9694cfaf890bbf149](https://github.com/user-attachments/assets/1c0ad121-19f7-4c88-bfd3-a165faa2636f)
+I don't get it
 
+Giving myself time and care makes me a selfish b*tch?
 
+What do you want me from me??
 
 
 
