@@ -1,6 +1,6 @@
 I don't get it.
 Giving myself time and care makes me a selfish b*tch?
-What do you want me from me??
+What do you want from me??
 This is what I was supposed to do from the start. I do it and I'm in the wrong still??
 
 
