@@ -1,5 +1,6 @@
 
-![13d4ae5cfb81585b0501e6bbb5980bd2](https://github.com/user-attachments/assets/f3cad7cc-b066-48a1-9f33-3e6ad2a66e9e)
+<img width="157" height="143" alt="Captura de pantalla 2026-03-08 211104" src="https://github.com/user-attachments/assets/9cfcb94b-0c50-41ad-863f-4016be690cae" />
+
 
 
 <!--
