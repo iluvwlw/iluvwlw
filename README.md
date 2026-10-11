@@ -1,3 +1,5 @@
+![Uploading Captura de pantalla 2026-10-11 231023.png…]()
+<img width="500" height="300" alt="97fd5e3e6e7e23a2748371a005660a81" src="https://github.com/user-attachments/assets/924c7e93-1eaa-431d-ba04-27b93da6e9e0" />
 
 
 
