@@ -2,8 +2,8 @@
 <img width="290" height="194" alt="Captura de pantalla 2026-10-11 231155" src="https://github.com/user-attachments/assets/21d1a55d-6a63-411b-9cb8-f84a81f80627" />
 
 o_o
-<br>
-This is still a WIP.
+<br><br>
+_This is still a WIP._
 <br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br>
 <img width="300" height="300" alt="Captura de pantalla 2026-11-20 182846" src="https://github.com/user-attachments/assets/eb7cb249-8402-485d-8dd8-c4e48fd2d168" />  Never forget!
 
