@@ -1,9 +1,9 @@
 <img width="290" height="194" alt="Captura de pantalla 2026-10-11 231023" src="https://github.com/user-attachments/assets/25cc3caf-3ef0-4998-8e41-d6a943ebaca5" />
 <img width="290" height="194" alt="Captura de pantalla 2026-10-11 231155" src="https://github.com/user-attachments/assets/21d1a55d-6a63-411b-9cb8-f84a81f80627" />
 
-I'll never forget this lol
+o_o
 
-<img width="300" height="300" alt="Captura de pantalla 2026-11-20 182846" src="https://github.com/user-attachments/assets/eb7cb249-8402-485d-8dd8-c4e48fd2d168" />
+<img width="300" height="300" alt="Captura de pantalla 2026-11-20 182846" src="https://github.com/user-attachments/assets/eb7cb249-8402-485d-8dd8-c4e48fd2d168" /> Never forget!
 
 
 
