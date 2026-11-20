@@ -17,7 +17,9 @@
 
 
 I'll never forget this lol
-<img width="640" height="640" alt="HXkC1QIWMAA5WCO" src="https://github.com/user-attachments/assets/cb37cfa0-c97b-445c-be97-2595913e727e" />
+
+<img width="633" height="637" alt="Captura de pantalla 2026-11-20 182846" src="https://github.com/user-attachments/assets/eb7cb249-8402-485d-8dd8-c4e48fd2d168" />
+
 
 
 
